@@ -4,3 +4,4 @@ I'm doing base guild quests.
 I'm sleepy today
 base app is important
 gn base
+Suddenly I got bored of everything. Just myself... right now at the base.
