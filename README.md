@@ -7,3 +7,4 @@ gn base
 Suddenly I got bored of everything. Just myself... right now at the base.
 beer or base :)
 I deplored the AI ​​agent. And GN
+I want to do my base routine and then go to sleep.
