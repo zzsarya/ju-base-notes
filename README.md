@@ -12,3 +12,4 @@ gn base
 I bought 2 early access NFTs.
 I tried spinning the spin, but it was a medium luck.
 I missed mega opportunity.
+My first contract is done 
