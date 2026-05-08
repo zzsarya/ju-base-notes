@@ -17,3 +17,4 @@ Wheel and Plinko have a moderate chance of success.
 a few confessions
 some soju and coffee
 I'm thinking about what I can do.
+gn base
