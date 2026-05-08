@@ -15,3 +15,4 @@ I missed mega opportunity.
 My first contract is done 
 Wheel and Plinko have a moderate chance of success.
 a few confessions
+some soju and coffee
