@@ -27,3 +27,4 @@ gm base
 There's a problem with the contract, but I can't figure it out.
 chances are still medium
 2 confessions
+gn base
