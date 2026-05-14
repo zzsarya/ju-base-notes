@@ -29,3 +29,4 @@ chances are still medium
 2 confessions
 gn base
 gm base
+luck is not bad
