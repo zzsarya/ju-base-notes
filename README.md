@@ -36,3 +36,4 @@ gn base
 hi base happy weekend
 My wallet activity is 55/100
 I still haven't been able to use the baseapp.
+I hate contract
