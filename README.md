@@ -42,3 +42,4 @@ What else should I do for the base?
 There is much to learn.
 I can also focus on base roles.
 luck is high today
+I'll be locked in next week (holidays are for working :))
