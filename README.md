@@ -45,3 +45,4 @@ luck is high today
 I'll be locked in next week (holidays are for working :))
 How do Jess and Base follow me?
 Dreams are important and discipline
+Should I deploy every day?
