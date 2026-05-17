@@ -43,3 +43,4 @@ There is much to learn.
 I can also focus on base roles.
 luck is high today
 I'll be locked in next week (holidays are for working :))
+How do Jess and Base follow me?
