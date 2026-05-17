@@ -47,3 +47,4 @@ How do Jess and Base follow me?
 Dreams are important and discipline
 Should I deploy every day?
 I need more plans and base.
+gn base happy new week 
