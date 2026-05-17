@@ -39,3 +39,4 @@ I still haven't been able to use the baseapp.
 I hate contract
 Because it just couldn't be verified.
 What else should I do for the base?
+There is much to learn.
