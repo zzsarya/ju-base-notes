@@ -49,3 +49,4 @@ Should I deploy every day?
 I need more plans and base.
 gn base happy new week 
 ok hi base ,again 
+The contract still hasn't been completed. I don't know what the problem is.
