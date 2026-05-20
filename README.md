@@ -48,3 +48,4 @@ Dreams are important and discipline
 Should I deploy every day?
 I need more plans and base.
 gn base happy new week 
+ok hi base ,again 
