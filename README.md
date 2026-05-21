@@ -54,3 +54,4 @@ I bought a planet on Greenworld and ı guess I have one tree there :9
 BaseApp is still pending.
 that's all for today. see you base
 hey base 
+I’ve deployed contracts countless times, but none of them ever got verified. Someone please explain this to me.
