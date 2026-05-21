@@ -53,3 +53,4 @@ The contract still hasn't been completed. I don't know what the problem is.
 I bought a planet on Greenworld and ı guess I have one tree there :9
 BaseApp is still pending.
 that's all for today. see you base
+hey base 
