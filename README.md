@@ -68,3 +68,4 @@ yo base
 What are some things to do after a short vacation?
 Will the problems in the contract be resolved?
 I've warmed up a bit. Have a good start on Monday!
+everything will be better , gn base
