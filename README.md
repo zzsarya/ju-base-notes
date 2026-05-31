@@ -65,3 +65,4 @@ I'm waiting for inspiration to switch to the app.
 gn base cheers !
 btw lucky is huge 
 yo base 
+What are some things to do after a short vacation?
