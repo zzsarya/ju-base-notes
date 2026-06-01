@@ -70,3 +70,4 @@ Will the problems in the contract be resolved?
 I've warmed up a bit. Have a good start on Monday!
 everything will be better , gn base
 selam base 
+I couldn't figure out the Greenworld game. I have 3 trees.
