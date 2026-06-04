@@ -79,3 +79,4 @@ A typical day
 700 left 
 What else can I do?
 yoo base
+I did the same things again
