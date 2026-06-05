@@ -87,3 +87,4 @@ happy friday base
 I do the same things
 I have to find different things
 build on base
+gn base
