@@ -85,3 +85,4 @@ gud night base
 happy friday base
 ı feeling lucky 
 I do the same things
+I have to find different things
