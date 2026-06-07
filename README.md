@@ -98,3 +98,4 @@ I don't know what I need to do in the Greenworld game.
 btw gold is falling
 a little disappointed
 I still haven't used BaseApp. I didn't really like it.
+gn base. tomorrow is new week !
